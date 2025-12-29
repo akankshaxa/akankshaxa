@@ -1,8 +1,9 @@
 ## hiieie welcome to my profilee !!
 
-✧ i'm akanksha ⟡
+✧ i'm akanksha dholwani, a btech cse fresher @srm uni ⟡
 
-just getting started ;) (BE NICE)
+~just getting started 
+(BE NICE)
 
 <!--
 **akankshaxa/akankshaxa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
