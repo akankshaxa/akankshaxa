@@ -1,8 +1,8 @@
 
- ## hi, welcome to my profile.
+ ## hii welcome to my profile!
 
 ✧ i’m akanksha dholwani  
-btech cse fresher @ srm university ✧
+a btech cse fresher @ srm university ✧
 
 just getting started. be nice.
 
