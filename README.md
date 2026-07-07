@@ -1,10 +1,13 @@
 
  ## hii welcome to my profile!
+ 
+✧ i’m akanksha dholwani
 
-✧ i’m akanksha dholwani  
-a btech cse fresher @ srm university ✧
+   a professional overanalyser
+   currently surviving a cse degree @ srmist 
+   
+   have fun looking around ✧
 
-just getting started. be nice.
 
 
 <!--
